@@ -158,13 +158,53 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 ![微信图片_20240616173432](https://github.com/NAND86/buy/assets/32132003/fe94f90a-4e85-4a09-81b6-3d1772f0d37a)
 
 ### 景芳一区
-- 
+- 景芳一区 72.37
+
+![景芳一区72.37](https://github.com/NAND86/buy/assets/32132003/a9f7b9a9-6dc3-40ae-8b35-a790b1c39225)
+![a4c1ceac-924f-4233-92f8-5a5c8347cb0c_1000](https://github.com/NAND86/buy/assets/32132003/2b8977a7-10e2-4325-9ddb-15ee6bbab462)
+1. https://hz.ke.com/ershoufang/103133497726.html?fb_expo_id=854785152294522882
+2. 景芳一区6幢1单元602
+3. 楼层高、离地铁近、说是孩子上高中要卖房？
+4. 2024.6.15挂260，心理价位245
 
 ### 景芳二区
+- 景芳二区 73.84
 
+![景芳二区73.84](https://github.com/NAND86/buy/assets/32132003/d28b6843-41a5-43bd-bb7e-1596ff4e0340)
+![0719425d-bc1d-4c0f-bf0f-b25e79f7a66c_1000](https://github.com/NAND86/buy/assets/32132003/55e21dd7-cd84-4e40-94cf-029e0110c559)
+1. https://hz.ke.com/ershoufang/103132971186.html?fb_expo_id=854776768228913157
+2. 景芳二区43幢4单元602
+3. 楼层高，带地下室，房间疑似漏水。房主是浙大老师（农大），楼下电站
+4. 2024.6.15挂248
+
+- 景芳二区 68.68
+
+![景芳二区68.68](https://github.com/NAND86/buy/assets/32132003/92892f0e-0248-48c2-ab6c-b16082dc6f5c)
+1. https://hz.ke.com/ershoufang/103133013510.html?fb_expo_id=854776768228913156
+2. 景芳二区33幢2单元502
+3. 毛坯在装修，很奇怪，未满两年
+4. 2024.6.15挂235
+
+- 景芳二区 69.98
+
+![景芳二区69.98](https://github.com/NAND86/buy/assets/32132003/fcc1b843-f8ed-4970-a762-df1539f71d16)
+![bd653a5d-4a44-44b8-bafb-63eebbd2034e_1000](https://github.com/NAND86/buy/assets/32132003/c7b40bfc-0c39-4c4b-bdda-b3ebb17ca4ae)
+1. https://hz.ke.com/ershoufang/103125717307.html?fb_expo_id=854776768228913179
+2. 景芳二区27幢2单元301
+3. 楼层合适，五口之家，客厅面积小，离菜市场近，楼下电站
+4. 2024.6.15挂251
 
 ### 景芳四区
+- 景芳四区 68.52
 
+![景芳四区68.52](https://github.com/NAND86/buy/assets/32132003/2bafdb39-0e7d-4fab-ba46-1e2e27df428d)
+![pc0_8BP5qmAn0_1](https://github.com/NAND86/buy/assets/32132003/e0eb3f08-7d4a-4a25-87e2-a749a38e8fdc)
+1. https://hz.ke.com/ershoufang/103127384642.html?fb_expo_id=854789374431842304
+2. 景芳四区35幢3单元601
+
+
+
+- 景芳四区 80.8
 
 
 
