@@ -201,10 +201,18 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 ![pc0_8BP5qmAn0_1](https://github.com/NAND86/buy/assets/32132003/e0eb3f08-7d4a-4a25-87e2-a749a38e8fdc)
 1. https://hz.ke.com/ershoufang/103127384642.html?fb_expo_id=854789374431842304
 2. 景芳四区35幢3单元601
-
-
+3. 楼层高，便宜，现在租给租客，户型稍差一点，客厅比较小
+4. 2024.6.15挂215，底价208
 
 - 景芳四区 80.8
+
+![景芳四区80.8](https://github.com/NAND86/buy/assets/32132003/8dd7fe5c-6752-453b-9d40-bb174066e905)
+![pc1_M1lJmX2Ow_1](https://github.com/NAND86/buy/assets/32132003/2de37f48-7ecd-4ed1-ba7c-a033e1defe3f)
+1. https://hz.ke.com/ershoufang/103123425721.html?fb_expo_id=854789374431842331
+2. 景芳四区23幢3单元602
+3. 楼层高，户型确实好，但是太贵了
+4. 2024.6.15挂285
+
 
 
 
