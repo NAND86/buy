@@ -375,9 +375,16 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 </details>
 
 ### 三塘桂园
+
+- ~~景芳六区 68.69 - 2024.7.14~~
 <details>
 
-- ~~第一套1楼，68平左右，10幢2单元，一个大爷自己在家，光线不好，感觉层高很低，不考虑  - 2024.7.14~~
+![standard_c862ecfc-8186-4b0f-ba47-7c6f5151a78e](https://github.com/user-attachments/assets/9706d03f-e7ba-406a-a89d-56a0fa9ecc23)
+![740b7afc-6cad-4cf8-993f-d206bce73e21_1000](https://github.com/user-attachments/assets/c375be89-1c53-4aeb-8d39-0fe0a9439fbb)
+1.  ~~https://hz.ke.com/ershoufang/103121049532.html?fb_expo_id=864960440588550144~~
+2.  ~~1楼，68平左右，10幢2单元~~
+3.  ~~一个大爷自己在家，光线不好，感觉层高很低，不考虑~~
+
 - ~~第二套5楼，68平左右，精装修，家里两个女孩，楼层高，客厅小 - 2024.7.14~~
 
 </details>
