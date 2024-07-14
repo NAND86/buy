@@ -198,7 +198,7 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 ### 景芳一区
 - 景芳一区 72.37  - 2024.6.15
 
-![景芳一区72.37](https://github.com/NAND86/buy/assets/32132003/a9f7b9a9-6dc3-40ae-8b35-a790b1c39225)
+![standard_6d1617c8-d8c2-4187-a7fb-e3fcb03a6db9](https://github.com/user-attachments/assets/37370afe-a52e-47de-8f66-470450a869ad)
 ![a4c1ceac-924f-4233-92f8-5a5c8347cb0c_1000](https://github.com/NAND86/buy/assets/32132003/2b8977a7-10e2-4325-9ddb-15ee6bbab462)
 1. https://hz.ke.com/ershoufang/103133497726.html?fb_expo_id=854785152294522882
 2. 景芳一区6幢1单元602
@@ -321,7 +321,7 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
   
 - 景芳四区 68.14 - 2024.6.23
 
-![standard_20c250be-1ec6-4322-a246-00f9f8e44548](https://github.com/NAND86/buy/assets/32132003/2540c464-58a0-4c84-a7cf-a0cb3aa2d6c2)
+![standard_20c250be-1ec6-4322-a246-00f9f8e44548](https://github.com/user-attachments/assets/92ffc447-b2ad-4fcf-80f6-ce9a34724505)
 ![cda911c7-3892-4069-b6d9-1db65fb91a74_1000](https://github.com/NAND86/buy/assets/32132003/62742de4-955f-40da-9955-6d38b8649bea)
 1. https://hz.ke.com/ershoufang/103132546291.html
 2. 景芳四区8幢3单元3楼
