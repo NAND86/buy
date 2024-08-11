@@ -400,6 +400,20 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 
 </details>
 
+- ~~三塘桂园76.19 - 2024.8.11~~
+<details>
+  
+![standard_6e45652a-ab6a-4731-a6bd-3dae3060fb9a](https://github.com/user-attachments/assets/87eea761-dae9-4a92-b460-8437307eefca)
+![pc1_UruEFEPTy](https://github.com/user-attachments/assets/ec5aa8f4-06dc-48ea-8767-5474c42ee99d)
+
+1. ~~https://hz.ke.com/ershoufang/103132531395.html?fb_expo_id=875119974799187970~~
+2. ~~11幢4单元103，有架空~~
+3. ~~北面厨房沿街，对着幼儿园~~
+4. ~~次卧阳台疑似包在墙体的竖直管道漏水~~
+5. ~~主要是卫生间的洗手池在过道，不方便~~
+
+</details>
+
 ### 三塘樱园
 
 - ~~三塘樱园68.82 - 2024.7.14~~
