@@ -448,10 +448,15 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 
 - 长德公寓86.44 - 2024.8.11
 
-![standard_f3c42335-477f-49ac-92c7-059627dc5aee](https://github.com/user-attachments/assets/6dec592f-513f-4388-b529-f6f8e1f2b45b)
-![pc0_eDsYmZxlO](https://github.com/user-attachments/assets/6c5a33d4-1b27-459e-b1c3-24ac8dbdb112)
-1. https://hz.ke.com/ershoufang/103133796074.html?fb_expo_id=864969077121437698
-2. 10幢1单元4楼，凌志楼
-3. 套内63.18
-4. 家里是两位老人，两房，边套，客厅有两个窗户
+![standard_0958a310-4138-4474-a0f2-545884fa4779](https://github.com/user-attachments/assets/0137bbef-c375-4437-b615-d0b8ef63a88d)
+![pc1_sthSh6bIz](https://github.com/user-attachments/assets/b35df2af-9eb6-4dd7-9ff6-33416b9e67d4)
+1. https://hz.ke.com/ershoufang/103133515592.html?fb_expo_id=875112955526750212
+2. 6幢6单元401
+3. 没有钥匙，没看到房子，但是看到了1楼同户型的房子
+4. 现在房子是群租房，不知道房东到底是不是诚心卖
+5. 如果按照1楼的改造方法，客厅是比较大，但是采光依然不是很好。如果北面仍然做卧室或者书房，客厅应该会更差。
+6. 这幢楼在小区最北面，再往北是一条河，从小门出去沿着河边走到头左转就是东新园站
+
+
+
 
