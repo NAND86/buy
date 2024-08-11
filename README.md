@@ -495,12 +495,11 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 <details>
 
 ![standard_52ee3be7-a04b-406f-a9e6-f776761bec34](https://github.com/user-attachments/assets/ede36a9b-5729-4458-80c6-9fe9d2354f97)
-![Uploading apc_haacAnP3t.jpg…]()
 
-~~1. https://hz.ke.com/ershoufang/103133419551.html~~
-~~2. 19幢1单元2楼~~
-~~3. 家里搬走的时候和战场一样~~
-~~4. 户型不错，两面（三个房间）都沿街，不考虑了~~
+1. ~~https://hz.ke.com/ershoufang/103133419551.html~~
+2. ~~19幢1单元2楼~~
+3. ~~家里搬走的时候和战场一样~~
+4. ~~户型不错，两面（三个房间）都沿街，不考虑了~~
 
 </details>
 
