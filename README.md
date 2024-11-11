@@ -446,7 +446,8 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 ### 长兴公寓
 
 - 长兴公寓72.82 - 2024.7.14
-
+<details>
+  
 ![standard_f3c42335-477f-49ac-92c7-059627dc5aee](https://github.com/user-attachments/assets/6dec592f-513f-4388-b529-f6f8e1f2b45b)
 ![pc0_eDsYmZxlO](https://github.com/user-attachments/assets/6c5a33d4-1b27-459e-b1c3-24ac8dbdb112)
 1. https://hz.ke.com/ershoufang/103133796074.html?fb_expo_id=864969077121437698
@@ -454,6 +455,9 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 3. 套内63.18
 4. 家里是两位老人，两房，边套，客厅有两个窗户
 5. 他们要卖房和孩子一起住，也不着急，所以死活不降价
+6. 原价195，大概9月份的时候182卖掉了
+
+</details>
 
 - ~~长兴公寓65.01 - 2024.7.14~~
 <details>
