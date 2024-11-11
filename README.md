@@ -488,7 +488,8 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 ### 六塘公寓
 
 - 六塘公寓79.19 - 2024.8.11
-
+<details>
+  
 ![standard_6362bffd-c8f2-40d1-a00e-43838529171b](https://github.com/user-attachments/assets/94fc21af-ebe5-43ac-9461-8430168632b9)
 ![2449f4a9-c515-4f08-85de-24a995e09a2d_1000](https://github.com/user-attachments/assets/2fb44663-de9c-44d1-8685-90f4bceaa3f2)
 1. https://hz.ke.com/ershoufang/103128091935.html?fb_expo_id=875116977096994835
@@ -499,7 +500,7 @@ TOP30小学，带星号的可以看下，不带星号的直接不考虑了。
 6. 房子还行，但是小区环境不行，太逼仄了，小区也没改造。这套房子在小区最西南角，离地铁站最远
 7. 暂时保留吧
 
-
+</details>
 
 ### 三塘北村
 
